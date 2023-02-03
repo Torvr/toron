@@ -1,3 +1,3 @@
 # toron
 
-![toron](https://imgur.com/a/zYq1UHj)
+![image](https://i.imgur.com/GP6Mj1R.png)
